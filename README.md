@@ -25,15 +25,7 @@ My dad fell into a cum shaft
 My dad glazed my face with cum
 Fertilize a baby with hunk spunk
 Cum spunk in my trunk
-See upcoming pop shows
-Get tickets for your favorite artists
-You might also like
-So Long, London
-Taylor Swift
-My Boy Only Breaks His Favorite Toys
-Taylor Swift
-Special
-SZA
+
 [Verse 2]
 Cum craving toddler
 Cum drippin' cunt
